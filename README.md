@@ -42,7 +42,7 @@ U卡作为当前最火热的金融科技创新产品，已非"雨后春笋"，�
 
 ### 1、注册账户
 
-首先，您需注册账户。打开FotonCard官网：**[https://fotoncard.com/](https://fotoncard.com/)**，平台实行邀请制注册，必须输入邀请码：**388832**方可成功注册。
+首先，您需注册账户。打开FotonCard官网：**[https://fotoncard.com/](https://fotoncard.com/)**，平台实行邀请制注册，必须输入邀请码：**【388832】**方可成功注册。
 
 ![FotonCard虚拟U卡注册开户](FotonCardsignup.jpg)
 
@@ -97,3 +97,4 @@ U卡作为当前最火热的金融科技创新产品，已非"雨后春笋"，�
 **FotonCard福田U卡仅限用于合规的国际海外线上支付场景。高拒付率、高退款率行为一律禁止**。平台提供4小时在线客服（后台页面右上角）。
 
 ---
+https://www.vccbus.com/2280.html
